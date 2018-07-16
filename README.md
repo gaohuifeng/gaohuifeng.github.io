@@ -1,6 +1,6 @@
 ## Huifeng's personal site
 
-### LINK: https://gaohuifeng.github.io/
+### LINK: http://gaohuifeng.cn/ or https://gaohuifeng.github.io/
 
 :sunglasses::sunglasses::sunglasses: <br>
 :sunglasses::flushed::sunglasses: <br>
